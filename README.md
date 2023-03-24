@@ -1,7 +1,7 @@
 > **Note:**
 In a semi-considered and enthusiastic action of signedav where he decided to have all his gitlab stuff on github to have more order in his life, he also moved his open source novel. But all the CI etc. is still running here: https://gitlab.com/osfiction/cityracoons
 
-![cityracoons_ebook_sehr_schmal](/uploads/166eab86b7afb608d700402be5c62bdf/cityracoons_ebook_sehr_schmal.jpg)
+![cityracoons_ebook_sehr_schmal](https://user-images.githubusercontent.com/28384354/227509710-0886e6d4-638a-4a9c-a3d9-af36d49fe459.jpg)
 
 Die Geschichte **Stadtwaschbären** (**Cityracoons**)
 
