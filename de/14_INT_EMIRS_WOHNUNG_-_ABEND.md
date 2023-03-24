@@ -1,0 +1,5 @@
+### 14. INT. EMIRS WOHNUNG – ABEND
+
+Es war eine gute Idee, mit ihr einen Italowestern zu schauen. Lee Van Cleef hat die Bibel in seine Tasche gepackt und die Notbremse gezogen, ist in Tucumcari ausgestiegen und hat den Steckbrief von der Wand des Bahnhäuschens genommen. Im Saloon schob er die Whiskeyflasche zur Seite, um den Wirt zu fragen, wo Guy Callaway steckt. Magda schaut Emir mit strahlenden Augen an. «Zu Western kriege ich immer Lust auf einen Whisky.»
+
+Emir holt den Bourbon von der Bar. Leider hat er keinen Single Malt Whisky. Nur diesen billigen Bourbon, den Mücke einmal hiergelassen hat. Aber das ist nicht so schlimm, denn was Lee Van Cleef soeben verschmäht hat, ist wahrscheinlich auch Bourbon und nicht Single Malt. Magda nimmt einen Schluck, lächelt zufrieden, lehnt sich zurück und zündet sich eine von Emirs Zigaretten an, die sie vom grünen Sofatischchen genommen hat. Sie lacht, als Clint Eastwood den Sheriff entmachtet, nachdem er mit Baby Cavanagh um dessen Leben gepokert hat. Magda schaut kurz zu Emir, dann wieder zum Film, nippt am Glas und raucht ihre Zigarette.

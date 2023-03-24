@@ -1,0 +1,3 @@
+### 62. INT. VUKS AUTO – ABEND
+
+Der Regen ist stärker geworden. Emir spurt den Saab zum zweiten Mal zurück in die Achsenstrasse. Magdas Tape spielt im Player. Fröhliche Ska-Musik. Im Lied, das gerade spielt, geht es um einen Typen, der ein Mädchen kennenlernt. Er möchte immer mit ihr tanzen und glaubt, sie möchte es auch. Aber es klappt irgendwie nie. Vielleicht schon – Emir versteht den letzten Teil des Liedes nicht. Auf jeden Fall singt der Sänger im Refrain I'm touching you, you're touching me, i'm touching you ... und dann geht es in einen grölenden Gesang über, welchen Emir lauthals herausbrüllt, während er das Gaspedal nach unten drückt.

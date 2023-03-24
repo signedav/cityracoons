@@ -1,0 +1,21 @@
+### 02. INT. BISTRO IN ZÜRICH – VORMITTAG
+
+Das Lächeln der Kellnerin gefriert. Das Pochen in Emirs Kopf lässt nach. Zwischen ihnen die Kasse. Stille. Dann, ganz fern, hört er ein Lachen und das Sprechen der Leute auf der Strasse. Er hat nicht viel Zeit. «Los!»
+
+Die Kellnerin erwacht aus ihrer Starre. Schnell tippt sie einen Code in die Kasse und die Schublade springt auf. «Ist aber nicht viel.»
+
+«Das ist mir scheissegal!» Emir schwenkt die Pistole. Ein Kinderspiel. Geld greifen, durch Küche und Hinterhof. Ist ja kein Grill dort. Oder durch die beiden Türen am Ausgang, die erste öffnet sich nach aussen, die zweite nach innen. Dann direkt in den nächsten Bus und unter die Leute und alles ist gut. Bald ist es vorbei. Stopp! Ein seltsames Geräusch. Aus Richtung Tür. Klar und deutlich. Ein Klacken. Emir blickt gebannt auf die Tür. Er sieht nur den oberen Teil. Der untere wird vom Tresen verdeckt. Was soll das? Noch ein Klacken. Die Türklinke bewegt sich nach unten, langsam öffnet sich die Tür. Emir hebt die Pistole. Wenn die Person, die jetzt eintritt, sich an einen Tisch am Fenster setzen würde, könnte sie die Waffe nicht sehen und er könnte die Sache unbemerkt abwickeln. Und wenn sie auf ihn zu käme, wäre er vorbereitet. Doch niemand kommt herein und die Tür schliesst sich wieder. War nichts? Wurde er gesehen? Hätte er sich maskieren sollen? Egal jetzt. Weiter. Er zielt wieder auf die Sommersprosse und die Kellnerin nickt. Sie stapelt die Banknoten neben die Kasse. Etliche Zehner und Zwanziger, einige Fünfziger, wenige Hunderter. Dennoch mehr als erwartet. Emir atmet entspannt aus. Alles ist gut. Sogar die Kopfschmerzen sind verschwunden. Er ist richtig zufrieden. Bis er ein Quieken vernimmt. Blick nach links. Verdammt. Sein Puls steigert sich wieder bis zum Takt der Musik, die irgendwann erneut eingesetzt haben muss. Er schwitzt so sehr, dass ihm die Pistole aus der Hand zu gleiten droht. Fest umklammert er sie. Neben ihm steht ein kleines Kind. Ein Mädchen mit hellbraunen Locken, einer grünen Winterjacke und roten Gummistiefeln, vielleicht dreijährig, Emir kennt sich da nicht aus, es kann auf jeden Fall aufrecht gehen, das kann man doch mit drei, oder vier, gleichzeitig wie sprechen, wobei nein, sprechen können sie vor dem Gehen, oder nicht? Ist ja völlig egal jetzt, was tut er überhaupt? Er ist nicht hier, um Kinder zu analysieren. Kann sich diese dumme Kuh mit dem Geld nicht etwas beeilen? Die Kellnerin aber neigt sich über den Tresen, blickt ihn an und fragt mit ruhiger Stimme: «Hast du denn eine Tasche fürs Geld?»
+
+Emir schreckt auf, wendet seinen Blick weg vom Kind. Er hat eine Umhängetasche. Wieder ein Blick auf das Kind, das wie ein Zombie mit riesigen Augen auf ihn zukommt. Er möchte die Tasche auf die Theke legen, doch eine Frauenstimme unterbricht ihn: «Sophie!»
+
+Das Mädchen springt zurück. Emir, zuerst erleichtert, erkennt dann die junge Frau, die gerade ins Bistro tritt. Magda. Er verharrt einen Augenblick. Betrachtet, wie sie den Mantel von ihren schmalen Schultern streift. Wie sie umherschaut, blinzelt. Wie ihre Lippen, rosarot auf der hellen Haut, sich zu einem Lächeln formen. Wie die vorderen Zähne sichtbar werden. Wie sie das Kind hochhebt und auf einen Stuhl setzt. Sanft, lieb, fürsorglich und elegant. So elegant. Wie Loredana Nusciak, die Schauspielerin aus Django. Weshalb kommt ausgerechnet sie heute in dieses Bistro? Die Tasche. Welche Tasche? Ah, natürlich. Das Pochen im Kopf. Nun wieder lauter denn je. Und Emir bemerkt die Pistole in seiner Hand, die SIG Sauer irgendwas. Die Pistole in Kopfhöhe, so dass jeder sie sehen kann. Er zuckt zusammen, zieht sie zurück und verstaut sie in der Manteltasche. Dann lässt er sich auf den Hocker fallen und die Umhängetasche auf den Boden sinken. Die Kellnerin blickt ihn bewegungslos an, hebt dann ihre schmalen Augenbrauen und blickt auf den Stapel Banknoten.
+
+«Was nun?»
+
+«Ein Kaffee To Go.»
+
+«Wie bitte?» Die Kellnerin schaut ihn an. Dann das Geld. Dann wieder Emir.
+
+«Einen Kaffee zum Mitnehmen. Bitte.» Er öffnet seine leeren Hände. «Ist dir doch auch lieber, oder?»
+
+Die Kellnerin zuckt die Schultern und räumt das Geld langsam in die Kasse zurück. Dann lächelt sie ihn an, zwinkert dabei und geht zur Kaffeemaschine.

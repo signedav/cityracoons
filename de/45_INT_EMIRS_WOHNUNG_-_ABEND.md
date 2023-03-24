@@ -1,0 +1,3 @@
+### 45. INT. EMIRS WOHNUNG – ABEND
+
+Nachdem Magda losgezogen ist, hat sich Emir auf die Couch gesetzt und sein Handy eingeschaltet. Elf verpasste Anrufe. Vier von Magda und sieben von Herrn Huber. Er wählt Hubers Nummer. Er würde jetzt diesem alten Sack sagen, dass er seine Kampfhunde an kurzer Leine halten soll, sonst müsste er bald einen neuen Milchmann und einen neuen Türsteher einstellen. Doch Emir hörte nur die Stimme, dass keine ausgehenden Anrufe möglich sind. Verdammt, er hat ja die Rechnung nicht bezahlt. So hat er einen kleinen Joint geraucht und ein Bier getrunken. Dann beginnt Sophie zu quengeln, sie habe Hunger. Emir merkt, dass seit Magda gegangen ist, schon über eine Stunde verstrichen ist.

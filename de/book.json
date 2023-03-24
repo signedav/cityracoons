@@ -1,0 +1,8 @@
+{
+  "title": "title-without-umlaut",
+  "styles": {
+        "epub": "styles/epub.css"
+    },
+  "author": "David Signer @signedav",
+  "language": "de"
+}
